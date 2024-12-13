@@ -22,3 +22,5 @@ A trident is featured on the corner of the map where the WFC is supposed to be, 
 
  
 ![merry xmas](https://github.com/user-attachments/assets/9ed6110e-ec2e-4017-b629-7006ce12e038)
+
+![leip845hb8n91](https://github.com/user-attachments/assets/08e042d3-613f-4af1-ae5f-47f4224ab5cf)
