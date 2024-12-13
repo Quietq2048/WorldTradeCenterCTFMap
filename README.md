@@ -21,3 +21,4 @@ A trident is featured on the corner of the map where the WFC is supposed to be, 
  This map might actually be big enough to feature 4 teams, if anyone wants to add 2 more teams on it, go for it!
 
  
+![merry xmas](https://github.com/user-attachments/assets/9ed6110e-ec2e-4017-b629-7006ce12e038)
